@@ -40,7 +40,9 @@ That was not wrong, knowing his potential he would definitely climb up the corpo
 
 Our conversation would be interrupted by messages on our terminals notifying us with a sound, a broadcast message but personal message of guidance to those in the merit list about what steps had to be taken.
 
-The wish to not talk to him any further returned again, just like it always had even without me wanting it.
+The wish to not talk to him any further returned again, just like it always had even without me wanting it. 
+
+I believe human connection is something that is too fragile, way too fragile, you only have one small chance to live. 
 
 . . . 
 
@@ -225,3 +227,14 @@ Before moving on, she turned back.
 "Each capsule is different as based on the rank of the officer, when you reach the base, you will be given a manual and allotted ample of time to experiment around. As for the Vectors, they will be assigned their capsules after their formal classification at the base."
 
 As she clarified, I had realized that we had been travelling over the ocean, was this base situated on another continent or something?
+
+. . . 
+
+
+
+. . . 
+
+
+
+
+
