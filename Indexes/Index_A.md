@@ -190,10 +190,11 @@ Uhm, that description was way too long, but it was true, it suited her too well,
 
 "We are given code-names which substitute our real names in the Vertex Accord as a signature of respect and for keeping it isolated to the work environment, technically, you hold full liability to expose and use your true name to those you feel comfortable around, your true name is only registered into the database and cannot be known by anyone else unless you go around and tell them."
 
-I see, that makes way more sense, she said the code-names were "given", meaning they must be handed out by an authority department. As I turned my neck around to see the look on the faces of the other 2, they looked like they saw the largest scum on Vertigo or something.
+I see, that makes way more sense, she said the code-names were "given", meaning they must be handed out by an authority department. As I turned my neck around to see the look on the faces of the other 2, they looked at me like they saw the largest scum on Vertigo or something.
 
-Oh, I forgot, in the message we were assigned code-names in one section.
+"Evo... The message had the code-name, did you forget?" Prisma acknowledged while looking at me with her expression unchanged.
 *How did I just miss this? Was I too taken aback by Stria's beauty? Is that supposed to be a weapon now!?*
+Did that mean they told me their code-names? Or was it their actual names? Should I even question this? *Nah, this seems too risky...* 
 Eventually they returned to normal expressions and Stria continued.
 
 "I am a qualified bioterminal administrator in the Vertex Accord, to give you some underlying context, you were not told about this in your official mails due to risk of a premature divulge. The bioterminal is Vertex Accord exclusive terminal which profiles your DNA into a device called the constructor which will form a holographic screen only the user is able to control."
