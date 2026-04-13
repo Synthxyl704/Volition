@@ -7,7 +7,7 @@ Tossing his terminal away after minimizing the Merit List, Elliot turned towards
 
 As I gave a response back to him by acting surprised, I realized again, that I had been in this academy for over 3 years now, preparing my studies to qualify into the Vertex Accord.
 
-The Vertex Accord was an independent military organization in the Vertigo Union, reputed to be the only organization with fast technological advancements in weaponry on par with Verdant Chroma and Blitz Republic, it was an honor that I could get enlistment in such an organization, my efforts did pay off... I suppose?
+The Vertex Accord was a semi-independent military organization in the Vertigo Union, reputed to be the only organization with fast technological advancements in weaponry on par with Verdant Chroma and Blitz Republic, it was an honor that I could get enlistment in such an organization, my efforts did pay off... I suppose?
 
 But I couldn't think silently for too long, my only friend initiated a conversation yet again as he always had, in quite a formal tone that did not frankly suit him.
 
@@ -17,7 +17,7 @@ As he said that, he slowly resumed to his original posture smoothly.
 
 *Don't do this, ever again, please, please.*
 
-I could almost get a stroke from the amount of cringe I felt hearing that I would save the world from Avez, but I could not help but only laugh lightly.
+I could almost get a stroke from the amount of cringe I felt hearing that I would save the world from Avez, but I could not help but only laugh lightly, in fact, I have never truly laughed on my own accord with him unless it was such stupid moments like this, I found no joy in such moments.
 
 As this stupidity continued, I wondered.
 
@@ -40,9 +40,9 @@ That was not wrong, knowing his potential he would definitely climb up the corpo
 
 Our conversation would be interrupted by messages on our terminals notifying us with a sound, a broadcast message but personal message of guidance to those in the merit list about what steps had to be taken.
 
-The wish to not talk to him any further returned again, just like it always had even without me wanting it. 
+The wish to not talk to him any further returned again, just like it always had even without me wanting it. It was not something that I could control, either, I suppose, but there was a conscious acknowledgement, that I would not let that feeling just evaporate and die on its own, there must have been a reason it always occurred, and I knew exactly of that reason... So, does that make me a horrible person? 
 
-I believe human connection is something that is too fragile, way too fragile, you only have one small chance to live. 
+I knew I would lose him someday, just like everybody else, I could not stay oblivious to that fact. 
 
 . . . 
 
