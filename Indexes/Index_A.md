@@ -209,13 +209,13 @@ I did not get it, were we supposed to be surprised? Because consider me surprise
 
 She proceeded to sit down on one knee like a knight. *Don't do this to me, I feel like a queen from the medieval era, now.* The 2 watched from aside as as her warm index and middle fingers traced gently along my wrist's pulsating vein, she made a soft sound from her mouth as if finding something precisely, placed a small cylindrical capsule that looked like a battery with circuit designs on it, and then pressed a small a button on the top.
 
-What followed was a surge of intense pain in the vein, almost like it had tore and cut a hole in my vein and replaced it with something funny, a small drop of blood had slid like it was set free after being in confinement for an eternity. Seconds later, she pressed another button and the pressed button returned to its original position, ending the pain at the site and then ejected it neatly from my wrist.
+What followed was a surge of intense localized pain, almost like it had tore and cut a hole in my vein and replaced it with something funny, a small drop of blood had slid like it was set free after being in confinement for an eternity. Seconds later, she pressed another button and the pressed button returned to its original position, ending the pain at the site and then ejected it neatly from my wrist.
 
 A small black square with dimly glowing white lines that looked like scales, was infused into my skin at the site.
 
 "Go on, press it lightly."
 
-On her gesture, I pressed the square which when I pressed it down like a button, made me feel like a syringe extracted my blood. The dimly lit white scales of the button pulsed with a bright white glow immediately and formed a small holographic terminal in front of me.
+On her gesture, I pressed the square which when I pressed it down like a button, made me feel like a syringe extracted my blood. The dimly lit white scales of the button pulsed with a bright white glow immediately and through some hole on center of the wall of the switch, it formed a small 2 dimensional holographic rectangular terminal parallel to the surface of my wrist.
 
 "This is the bioterminal, you will communicate and update your status and work from here to the main control room, you will also have to use it extensively during operations and missions, as it does come with a variety of different features for the Ascendant, who is the brains of an operation..."
 
@@ -223,13 +223,24 @@ Do I always have to feel that mild stinging pain whenever I activate it? Almost 
 
 "The slight pain during activation is something you will have to acclimate to, we at the R&D have tried our best to make it feel as painless as possible, and further research continues promptly, even now."
 
-I see. "You said there were special features exclusive for the Ascendant...?"
-Before moving on, she turned back.
-"Each capsule is different as based on the rank of the officer, when you reach the base, you will be given a manual and allotted ample of time to experiment around. As for the Vectors, they will be assigned their capsules after their formal classification at the base."
+I see. "You said there were special features exclusive for the Ascendant...?" I asked, being confused about the wording.
+
+"Each capsule is different as based on the rank of the officer, when you reach the base, you will be given a manual and allotted ample of time to experiment around. As for the Vectors, they will be assigned their bioterminals after their formal classification at the base. Ascendants are a unique rank with not much variation, therefore I could administer yours immediately."
 
 As she clarified, I had realized that we had been travelling over the ocean, was this base situated on another continent or something?
 
 . . . 
+
+After about 2 hours, we finally reached the Vertex Accord's base.
+
+A large aerial base that had a hexagonal platform but mostly open from all sides, it had something that looked like thrusters on the bottom but I could not see it clearly. 8 large rotating structures that had many glass windows and circuit-like semiotics which I am not sure what they accomplished, clean cut brutalist shaping that somehow looked perfectly futuristic with bright lightings even visible in daylight.      
+
+"Huh...?? Is this base what they call a VXLFS or something?" I asked stupidly, Stria became quite perplexed.
+"VXLFS...? If you mean Very (eXtremely) Large Floating Structures (VLFS)? Then maybe, but not entirely under that rubric, it is above the ocean surface at least by a few hundred meters..."
+
+Weird, just what category did this fall into then? But I did not want to question that much for some reason, the visuals would distract me more often.
+
+Prisma and Everyn would not be able to see this, they were instead, sleeping quite soundly, with Everyn's head resting on Prisma's shoulders. *What an adorable sight...*
 
 
 
