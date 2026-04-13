@@ -84,7 +84,7 @@ When it rains, and there is soil around, there is secretion of geosmin which is 
 
 The girl in front of me was done and I could see her waiting for her friend on a distance, I tried my best to make it quick even though the speed of the check-out was not in my hands, I would scan promptly and make my way to the same direction the woman was in, although I would overtake her position because I had elsewhere to go.
 
-I had to make my way to a specific co-ordinate in the NDC's northern empty fields. Why? Because apparently to "isolate" the network and have an empty place to land, I did not understand the "isolate" part more clearly, maybe I would know on site.
+I had to make my way to a specific co-ordinate in the NDC's northern empty fields. Why? Because apparently to "isolate" the network and have an empty place to land, I did not understand the "isolate" part more clearly.
 
 Much time passed, actually it had only been around 20 minutes I started walking.
 As I walked on the well maintained asphalt roads, with many markings and symbols, the sky was dull gray but still bright enough for me to comfortably and safely walk while admiring the high rises as I passed them on the sidewalks.
@@ -110,7 +110,7 @@ I had stopped just at the corner point, it was a good place to stop, I could mak
 
 The one who waved came up to me, she was slightly taller than the other girl, she wore a dark ski jacket that would protect her body all well from the neck till the end of her waist, her hair breathed through the sides of her well toned face which escaped from her black beanie.
 
-"Hey, you are in the same course as us right?"
+"Hey, you are in the same course as us right?" She asked.
 
 The course we were in were a standard military research oriented course, although way more physically tiring as Gluon placed its importance rightfully on.
 
@@ -140,8 +140,8 @@ Her black eyes darted a little, her unkempt bangs would brush the wind smoothly,
 She spoke nothing, no sound would come out of her thin lips. Prisma seemingly did not look awkward by the situation either, instead she left a small chuckle that was almost imperceptible.
 I turned towards her, knowing I could not converse any further with Everyn.
 
-"You two have the same co-ordinates of the rendezvous?"
-"Maybe? We are heading to the northern fields, what about you?"
+"You two have the same co-ordinates of the rendezvous?" I asked.
+"Maybe? We are heading to the northern fields, what about you?" They answered.
 "I am heading there as well, although I chose to walk because its still 6 a.m. and I would reach till 6:30 a.m. easily, if I walked fast enough, that is."
 
 Her expression did not change on my statement.
@@ -162,7 +162,7 @@ A prominent sliding door would open, and I could see Prisma evaluate who it was 
 
 Soon, a figure would evince herself, her eyes were covered with a black band that went through the whole perimeter of her head, and her dark shirt tucked neatly inside her... trousers? Are those trousers? They look way more lavish or extensively designed... But as I assessed her clothing, she spoke her first words to us.
 
-"Greetings, new members of the Vertex Accord... We have confirmed your identity and added entries to our database, more information will be disclosed at the base. I am Verity, the 2nd Vertex Accord lieutenant, more than 2 years in office. As of now, please follow me into the aircraft, we will safely carry you to our base and in the meantime, the Ascendant will be administered with our exclusive bioterminal." 
+"Greetings, new members of the Vertex Accord... We have confirmed your identity and added entries to our data, more information will be disclosed at the base. I am Verity, the 2nd Vertex Accord lieutenant, more than 2 years in office. As of now, please follow me into the aircraft, we will safely carry you to our base and in the meantime, the Ascendant will be administered with our exclusive bioterminal." 
 
 She did not even wait for us to introduce ourselves.
 
