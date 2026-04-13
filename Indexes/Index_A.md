@@ -1,7 +1,7 @@
 ## 1.1
 "Evo...! Evo!!! You have actually been qualified!"
 
-There was incomprehensible babble that came as reverberated noise to me from different rooms, with individual people in them talking to each other in such a great number that the whole floor could vibrate if it was only amplified enough.
+There was incomprehensible babble that came as reverberated noise to me from students in different rooms, with individual people in them talking to each other in such a great number that the whole floor could vibrate if it was only amplified enough.
 
 Tossing his terminal away after minimizing the Merit List, Elliot turned towards me almost too enthusiastically.
 
