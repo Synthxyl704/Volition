@@ -6,7 +6,7 @@ Some were tired of these questions, they wanted an escape away from such which l
 
 In this world, subjectivity was undesirable to them, they wanted power, they wanted to feel like they could control, somewhere in their minds did they grow an idea of destruction.
 
-The living of the world on the planet of [[Exposition#Planet Types|EX Type 16]] or "[[Exposition#Vertigo|Vertigo]]", or as they abbreviated it as EX-T16, questioned as they would, continuing to make breakthroughs in technology and science, these beings despite made of fragile flesh of simply being human, continually proved themselves and progressed into being so advanced that they could even participate in interplanetary research and transportation within their solar system, but they had never found another living of their own anywhere until that point.
+The name of the planet of residence is Vertigo, a name whose origins could not be traced perfectly.
 
 # Perplexity.
 ---
